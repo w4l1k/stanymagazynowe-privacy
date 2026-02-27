@@ -1,1 +1,0 @@
-# stanymagazynowe-privacy
